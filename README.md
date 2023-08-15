@@ -9,4 +9,4 @@ However, to determine the value of an item, it must be searched individually on 
 
 
 # YouTube Video
-[![Video](https://www.islandmediamanagement.com/wp-content/uploads/2020/06/youtube_clicks.jpg)](https://youtu.be/9_q6siarysI)
+[![Video](https://90snkrs.com/wp-content/uploads/2022/04/STOCKX-VS-GOAT-–-WHICH-IS-BETTER.jpg)](https://youtu.be/9_q6siarysI)
