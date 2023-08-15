@@ -9,4 +9,4 @@ However, to determine the value of an item, it must be searched individually on 
 
 
 # YouTube Video
-[![Video](https://i9.ytimg.com/vi/9_q6siarysI/mq2.jpg)](https://youtu.be/9_q6siarysI)
+[![Video](https://www.islandmediamanagement.com/wp-content/uploads/2020/06/youtube_clicks.jpg)](https://youtu.be/9_q6siarysI)
